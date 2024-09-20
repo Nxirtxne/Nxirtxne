@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nxirtxne
+- 👀 I’m interested in Full-stack. 
+- 🌱 I’m currently learning Automated testing, Machine Learning and Web Develop.
+- 📫 How to reach me, This my email --> teerapat.ncr11@gmail.com
+- 😄 Pronouns: "Noir""tone"
